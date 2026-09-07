@@ -2,7 +2,7 @@
 <img src="https://i.postimg.cc/52kQ6ngN/Senza-titolo-1591-20260906201821.png"ex=6633d46c&is=663282ec&hm=259337d346199d87776791ec170801a253cbf972ed40197a8dbf089102076007&=&format=webp&quality=lossless">
 
 <p align="center">
-<img src=https://i.postimg.cc/8CJJWMXN/Senza-titolo-1592-20260906201930.png">
+<img src=https://i.postimg.cc/ryWHjHRG/Senza-titolo-1592-20260906204353.png">
 
 <p align="center"
 
