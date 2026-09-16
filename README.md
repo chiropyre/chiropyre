@@ -6,11 +6,11 @@
 
 <p align="center"
 
-[RENTRY](https://rentry.co/ventidearest) ‧ [STRAWPAGE](https://narasito.straw.page) ‧ [ATABOOK](https://narancia.atabook.org/)
+[RENTRY](https://rentry.co/bloodveiled) ‧ [STRAWPAGE](https://narasito.straw.page) ‧ [ATABOOK](https://narancia.atabook.org/)
 </p>
 
 <p align="center">
 <img src="https://i.postimg.cc/kM1dW43t/IMG-5598.png"ex=6633d474&is=663282f4&hm=7dc4c702d5a0b40cffca6f3cc9e7bb18406df5cabf5c3eb1c7e3e2160ea89669&=&format=webp&quality=lossless">
 
-free palestine 🇵🇸
-[ceasefiretoday](https://ceasefiretoday.com/)
+Free Palestine 🇵🇸
+[ceasefiretoday](https://ceasefiretoday.com/) & USE AN AD BLOCKER FOR RENTRY!!!
