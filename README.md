@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[RENTRY](https://rentry.co/bloodveiled) ‧ [STRAWPAGE](https://narasito.straw.page) ‧ [ATABOOK](https://narancia.atabook.org/)
+[RENTRY](https://rentry.co/bloodveiled)   ✙   [STRAWPAGE](https://narasito.straw.page)   ✙   [ATABOOK](https://narancia.atabook.org/)
 </p>
 
 <p align="center">
